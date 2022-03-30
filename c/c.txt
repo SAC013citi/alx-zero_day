@@ -1,0 +1,1 @@
+Dynamight Dies but not by Deku....ssssshhh , spoilers ..... maybe . PSYCH.
